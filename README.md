@@ -1,1 +1,2 @@
-add MIT
+Team Members:
+SteezyFangMouth or whatever 
